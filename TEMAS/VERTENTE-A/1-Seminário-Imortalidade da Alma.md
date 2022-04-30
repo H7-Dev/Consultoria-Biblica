@@ -9,13 +9,17 @@ Aqui serão analisados diversos estudos e doutrinas bíblicas das mais diversas 
    - Coração
 > #### **ver mais tarde**
 >
-> | Temas                          | Links |
-> | :---                          |  :----:    |
-> | O DUALISMO NA TEOLOGIA CRISTÃ  | [Link](http://dspace.est.edu.br:8080/jspui/bitstream/BR-SlFE/103/1/rosa_wp_tm214.pdf)
-> | A PARÁBOLA DO RICO E LÁZARO  | [Link](https://www.youtube.com/watch?v=8dCiEqjG-1M&ab_channel=RodrigoSilvaArqueologia)
+> | Temas                           | Links |
+> | :---                            |  :----:    |
+> | O DUALISMO NA TEOLOGIA CRISTÃ   | [Link](http://dspace.est.edu.br:8080/jspui/bitstream/BR-SlFE/103/1/rosa_wp_tm214.pdf)
+> | A PARÁBOLA DO RICO E LÁZARO     | [Link](https://www.youtube.com/watch?v=8dCiEqjG-1M&ab_channel=RodrigoSilvaArqueologia)
 > | Rodrigo Silva admite “Lucas falou de Imortalidade da Alma”  | [Link](https://www.youtube.com/watch?v=a2bXBjkdG70&ab_channel=CACPVIDEOS)
+> | Levíticos cap. 17 vers. 10-14  | [Link](https://www.biblegateway.com/passage/?search=Lev%C3%ADtico%2017-26&version=ARC)
+> | Gênesis cap. 9 vers. 4         | [Link]()
 
 
+
+>## **⚜️ Aula 2**
 
 >## **⚜️ Aula 1**
 > ### **🏁 00.00 Dicotomia e dualismo platônico**
