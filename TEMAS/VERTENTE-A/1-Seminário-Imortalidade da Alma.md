@@ -16,6 +16,7 @@ Aqui serão analisados diversos estudos e doutrinas bíblicas das mais diversas 
 > | Rodrigo Silva admite “Lucas falou de Imortalidade da Alma”  | [Link](https://www.youtube.com/watch?v=a2bXBjkdG70&ab_channel=CACPVIDEOS)
 > | Levíticos cap. 17 vers. 10-14  | [Link](https://www.biblegateway.com/passage/?search=Lev%C3%ADtico%2017-26&version=ARC)
 > | Gênesis cap. 9 vers. 4         | [Link]()
+> | São Três o que testificam o Sangue o Espírito e a água         | [Link]()
 
 
 
